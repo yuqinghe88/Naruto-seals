@@ -1,0 +1,2 @@
+# Naruto-seals
+Ooo
